@@ -1,7 +1,13 @@
 # The Dataset
 
 - Dataset was started to be collected afterall I was not available to pay education-bills and study in desired University like ITMO , MIT , further also MPtI excluding СПБГУ , МГУ 
-- Dataset was started as a boredom of new 2019 year by listening films like the first of the dataset "Ready Player One" and second "Black Panter" . 
+1. Dataset was started as a boredom of new 2019 year by listening films like the first of the dataset "Ready Player One" and second "Black Panter" . 
+2. After I was made a habbit to make notes of everything I have been done or watched or sincerely listened like book "Homo Sapiens" , "Homo Deus" in e-library I was started to notate time I was spent to learning material like studying subject .
+3. The dataset further alocated to the communal and household Government TAX related things like Water Usage , Electricity or Machine usages or even the application I was notated all those data automatically . So the Study spent time or work spent time become more practical as diet tests vegan veganism vegeterianism and other libido deactive habbits was notated more like household details.
+
+## Pre-published dataset contain more than 31 day of August 2019 , more entire 2019 year half of 2020 and quater days of 2021-2024 .
+
+***The main achievement of that activity is major amount of ___keys___ of key-value so the most ever seen by me hand made dataset of key rich flat style database of files and papers***
 
 
 Sorry for specific data , the policy of data was intruded only a person gathering the data except 3rd party usually , excepting real questions to 3rd party people and their word-of-agreement to be transcribed and publicly published or privately on local machine
