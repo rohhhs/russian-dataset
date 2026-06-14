@@ -10,7 +10,7 @@ Custom related events or cluster of activity are present : if food percepted ove
 
 ## Problem of kids under 3 months or 3 years
 
-Sometimes kid's belly pimp up with air and they start crying so in those things therapists are pushing slowly and kindly belly and move knees to the belly to give it out the air or make a really small child fart Carefully ! (Sorry for my tough slang and words used in explanation without lyrics and sometimes with mistakes like the most common of my dataset error of 2019 are Squirell and Carbohydrates)
+Sometimes kid's belly pimp up with air and they start crying so in those things therapists are pushing slowly and kindly belly and move knees to the belly to give it out the air or make a really small child fart Carefully ! (Sorry for my tough slang and words used in explanation without lyrics and sometimes with mistakes like the most common of my dataset error of 2019 are Squirell and Protein ...)
 
 ```Activity like jump stomach muscles daily dozen do really apply to amount of farts as 1.4 or 1.5-1.7 , sometimes 1.13```
 
