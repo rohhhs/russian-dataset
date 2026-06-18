@@ -5,3 +5,12 @@ The correlation of women over the dataset of periods ___no answer___ how to corr
 Primary the idea of dataset laid down other the non-surgical methods of Computer Vision of different optic gadjets or measure instrumets of weight or in my personal opinion the sizes as sewing length auto ruller to measure the body bones.
 
 So the periods specifically unavailable to produce corrrelation otherwise region of Saint-Peteresburg and Dia Sys Pulse of weather conditions of 70 kg person of 0.9 or 0.4 in specific scenarios of data specification in different conditions , conjuncture .
+
+# Over 3000 days can be given upon request with license agreement of comercial purpose with my honor of 30 or even 125 parameters and automated above million 
+
+## Purpose of Apps of counting Periods or sometime Culture
+
+List of uncounted datas
+1. Fart
+2. Periods
+3. IP or User Agent for specific platform
