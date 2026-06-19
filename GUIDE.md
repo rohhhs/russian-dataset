@@ -14,3 +14,11 @@ List of uncounted datas
 1. Fart
 2. Periods
 3. IP or User Agent for specific platform
+
+
+OBJECTIVISATION (Data for other people as their data, simply scam or silence-of-source)
+
+1. Whores , example the old man asked for a data , thr data manager ask what data and an old man told of girls or whores .
+2. female oraculs or predictors 
+
+...
